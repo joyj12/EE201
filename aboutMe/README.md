@@ -9,3 +9,5 @@ I love working on projects that have a good mix of hands-on experience and codin
 
 I am flexible and adaptable when it comes to problem-solving, and I chose engineering because of how creative I can be when coming up with solutions to real-life problems. I would love any learning opportunities and connect with you to share my passion!
 
+I also have a 12 year old dog named Angdoo :)
+![cutest dog](/c/Users/Joy\ Jung/Desktop/EE201/angdoo.jpg)
